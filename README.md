@@ -4,7 +4,7 @@
 
 
 
-![Logo](https://ideogram.ai/api/images/direct/jqEf1hvLSWi3jp0v6LVzzQ)
+![Logo](https://i.ibb.co/Syvf4fD/BW-Custom-Text-LOGO-1.png)
 
 
 ## Diagram
